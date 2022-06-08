@@ -6,6 +6,5 @@ https://www.youtube.com/watch?v=7ejuIzrlRwg
 - Please reference this video for more detail: https://www.youtube.com/watch?v=7ejuIzrlRwg
 - Live view: http://54.145.162.34/
 My live account on Binance:
-0xaBCf416271993d83b977c689eD7C09a860EB2CF4
 Initial invest: 10bnb and profit is 0.01bnb in 3~5 mins.
 If invest is 1000 bnb, the profit will be 1bnb in 5 mins.
